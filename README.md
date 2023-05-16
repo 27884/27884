@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @27884
-- 👀 I’m interested in ...la música, leer
+- 👋 hola soy...yessica
+- 👀 Me interesa...la música, leer
 - 🌱 Actualmente estoy aprendiendo...esto 
 
 - 💞️ Busco colaborar en...
